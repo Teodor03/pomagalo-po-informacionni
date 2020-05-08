@@ -1,0 +1,1 @@
+# pomagalo-po-informacionni
